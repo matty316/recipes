@@ -7,6 +7,5 @@
 * 15g white vinegar 
 * 7g salt 
 * 10g instant yeast 
-* 30g water (yeast) 
 * 30g honey
 * 15g oil
